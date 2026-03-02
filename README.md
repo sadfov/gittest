@@ -1,1 +1,2 @@
 # gittest
+TETO WORD OF THE DAY
